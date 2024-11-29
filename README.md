@@ -1,1 +1,1 @@
-![[meme/dark-souls-think.gif]]
+![](meme/dark-souls-think.gif)
